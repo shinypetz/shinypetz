@@ -1,9 +1,12 @@
 # shiny
 <sup>he/him</sup>  
-how do i github  
+hello
+
+audio engineer and music producer
+soun designer and composer for indie video games
   
-i also make music  
-follow me -- [@shiny.onthebeat](https://www.instagram.com/shiny.onthebeat/)  
+music acc. on instagram: 
+follow me -- [@prod.shiny](https://www.instagram.com/prod.shiny/)  
 
 <!--
 **shinypetz/shinypetz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
