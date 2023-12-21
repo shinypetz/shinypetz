@@ -3,7 +3,7 @@
 hello
 
 audio engineer and music producer
-soun designer and composer for indie video games
+sound designer and composer for indie video games
   
 music acc. on instagram: 
 follow me -- [@prod.shiny](https://www.instagram.com/prod.shiny/)  
